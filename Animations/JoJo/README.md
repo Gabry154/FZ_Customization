@@ -7,4 +7,4 @@
 
    - ___Jotar0_Kuj0_Part6___
 
-      [Jotar0_Kuj0_Part6.webm](https://user-images.githubusercontent.com/63927828/211174512-8784be6e-0e73-4869-bb54-0c35159c3987.mp4)
+      [Jotar0_Kuj0_Part6.webm](https://user-images.githubusercontent.com/63927828/211174596-cfa8ddf6-2cde-49d6-b5e0-eea28e8667e5.webm)
