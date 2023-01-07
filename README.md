@@ -1,2 +1,2 @@
-# Animations
+# Flipper Zero Customization
  
